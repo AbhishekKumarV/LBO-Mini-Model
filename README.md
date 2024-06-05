@@ -1,0 +1,1 @@
+ Ready to level up your financial modelling skills? 💡 Check out this mini LBO model I've created to help you understand the basics of Leveraged Buyouts. Dive into the numbers, explore different scenarios, and let's decode the intricacies of LBOs together
